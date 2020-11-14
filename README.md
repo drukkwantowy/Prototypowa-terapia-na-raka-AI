@@ -5,3 +5,4 @@ Domestos pani Grażyny od mycia kibli nie jest zdrowy dla naszego DNA. Cała med
 Większość leków psychotropowych pochodzi od domestosu 1 chorobe leczy a robi drugą wade szkodządz DNA. Człowieka można leczyć tylko programując jego DNA. Przez głupote Bajeru giną ludzie i ci ludzie co mają duże majątki bo słuchają herezji Katolickiej Watykanu bo cierpienie niby uszlachetnia. Większej herezji jak kościuł to nie słyszałem. Jak ktoś chce być jak jezus to niech wstrzyknie sobie etanol, domestos i benzyne spotka się z jezusem. 
 Jak chcesz być zdrowy nie słuchaj bibli i nie pij benzyny a biblie traktuj jako lekcje przed szaleńcem co wmawia ci że zdrosza jest bęzyna (trucizna) niż woda.
 Dzisiejsza medcyna opiera się nie na leczeniu a na uszkadzaniu DNA i pokazów cyrkowych jak jesteś mocny. Medycyna nie potrafi leczyć jej początki wywodzą się z cyganeri cyrkowej. 
+https://github.com/drukkwantowy/AI-generator-Rife
